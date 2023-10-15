@@ -1,6 +1,5 @@
 ### Hi there 👋
-![Ramiro-islagif](https://user-images.githubusercontent.com/114593818/199306030-040ce431-7908-4dd0-8b79-2d489a123b20.gif)
-
+![Ramiro ISLA](https://github.com/Ramiro-isla/ramiro-isla/assets/114593818/83889f93-cc86-44b7-98b5-dad312a50c96)
 
 # About Me 😄
 
